@@ -32,6 +32,3 @@ I wonder if there is a way to find your reset button other than an incredibly ba
 ## Sleep Cycle
 
 The worst would probably be the sorry state of my sleeping schedule, i've been experiencing mood swings and huge imbalances in my perception, and i think it is due to the deregulation of my circadian rhythm.
-
-
-Stuff
